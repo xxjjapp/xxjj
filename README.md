@@ -16,6 +16,5 @@
 :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 ==
 
-![](https://ae01.alicdn.com/kf/U2e0cdac66b94443ba4ee66790e532dc05.png)
 
 :e-mail: __邮箱联系方式: xxjjapp@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
